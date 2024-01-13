@@ -26,6 +26,20 @@ No. No chaos noodles indoors.
 
 # Working
 
+## Molosser
+
+### Caucasian Ovcharka
+
+No. They deserve a farm.
+
+### St. Bernard
+
+Yes. Best baby.
+
+### Moscow Watchdog
+
+Yes. Large Babushka.
+
 # Terrier
 
 # Toy
